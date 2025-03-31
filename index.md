@@ -1,4 +1,4 @@
-# dhanlakshmi.github.io
+# Dhan Lakshmi App
 
 **Privacy Policy**
 
